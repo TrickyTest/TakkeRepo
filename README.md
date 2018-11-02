@@ -3,5 +3,4 @@
 Just some branch practise
 
 
-![Scyndi Scorpio](https://images3.imgbox.com/12/1b/MAEaDGDL_o.png)
-
+![Wendicka Lovejoy](https://i.gjcdn.net/data/forum/posts/0/200/7200/media/-93zciuy6.png)
