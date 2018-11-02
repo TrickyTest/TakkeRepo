@@ -3,4 +3,5 @@
 Just some branch practise
 
 
-![Wendicka Lovejoy](https://i.gjcdn.net/data/forum/posts/0/200/7200/media/-93zciuy6.png)
+![image](https://user-images.githubusercontent.com/11202073/47907941-869ca280-de8c-11e8-8d45-6fbefc2e81ba.png)
+
